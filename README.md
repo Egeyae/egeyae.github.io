@@ -1,1 +1,0 @@
-# egeyae.github.io
